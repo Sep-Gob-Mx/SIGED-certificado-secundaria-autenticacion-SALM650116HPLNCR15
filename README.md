@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SALM650116HPLNCR15
+SALM650116HPLNCR15
